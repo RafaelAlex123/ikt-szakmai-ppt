@@ -1,0 +1,1 @@
+# ikt-szakmai-ppt
